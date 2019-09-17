@@ -1,2 +1,21 @@
-# seasonsgreetings
-USA GOs for 2019–2020 Season’s Greetings
+## 2020 LOONA Season’s Greetings: USA GOs
+Group Orders organized in the USA for 2019–2020 Season’s Greetings.
+
+| Member | Fansite – SG name | GOMs 🇺🇸 |
+|:---:|---|---|
+| OT12 | [**DUSTGLASS** – Moonlight Shadow](https://twitter.com/DUSTGLASS/status/1173131956634058752) | |
+| 🐰 | [**liptight1019** – TEENAGE DREAM](https://twitter.com/liptight1019/status/1171018623005016064) | [@TripleCosmosGOs](https://twitter.com/TripleCosmosGOs/status/1173169108315230208), [@whycoaster](https://twitter.com/whycoaster/status/1172560946528759813) |
+| 👄 | [**kissmylips_kr** – sleepless.](https://twitter.com/kissmylips_kr/status/1172195731546890240) | |
+| 🐟 | [**trust_issues613** – blue blood.](https://twitter.com/trust_issues613/status/1173977651293278208) | |
+| 🐟 | [**ph613&#95;** – Retro.](https://twitter.com/ph613_/status/1171053404791009280) | [@whycoaster](https://twitter.com/whycoaster/status/1173807657729384449) |
+| 🐟 | [**singasoul97** – Permanent Blue](https://twitter.com/singasoul97/status/1172438039647281153) | [@blossominGOs](https://twitter.com/blossominGOs/status/1172590751290511361), [@StarTokkis](https://twitter.com/StarTokkis/status/1173348270518808576), [@TripleCosmosGOs](https://twitter.com/TripleCosmosGOs/status/1173171794720776193), [@whycoaster](https://twitter.com/whycoaster/status/1173269255170809856) |
+| 🍎 | [**SwanLake524** – All About Yves](https://twitter.com/SwanLake524/status/1172871802340573185) | |
+| 🍍 | [**lomography&#95;** – Color](https://twitter.com/lomography_/status/1173225884817342465?s=20) | [@StarTokkis](https://twitter.com/StarTokkis/status/1173832376968982529), [@TripleCosmosGOs](https://twitter.com/TripleCosmosGOs/status/1173458402598686722) |
+| 🐺 | [**offbeat1113** – DROP THE BEAT](https://twitter.com/offbeat1113/status/1173847180399927296) | |
+
+
+#### What is a Season’s Greeting (SG)?
+Season’s Greetings are collections of merchandise released near the end of the year. SGs made by fansites include unofficial merchandise like calendars and photo cards.
+
+#### What is a Group Order (GO)?
+A Group Order is a method of pooling funds for cheaper shipping. A Group Order Manager (GOM) in your area will organize a Group Order to buy goods from overseas. Ordering from a GOM means you will pay the GOM and the GOM will ship the goods to you.
