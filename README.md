@@ -1,5 +1,4 @@
-# 2020 LOONA Season’s Greetings: USA GOs
-_Group Orders organized in the USA for 2019–2020 LOONA Season’s Greetings._
+# 2020 LOONA Season’s Greetings: Group Orders
 
 <br>
 
