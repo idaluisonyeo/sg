@@ -1,4 +1,5 @@
 # 2020 LOONA Season’s Greetings: Group Orders
+_List of all 2019–2020 LOOΠΔ fansite SGs_ 🎁
 
 <br>
 
