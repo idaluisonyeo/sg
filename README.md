@@ -3,9 +3,9 @@ _Group Orders organized in the USA for 2019–2020 LOONA Season’s Greetings._
 
 <br>
 
-| Member | Fansite – SG name | GOMs 🇺🇸 |
+| 🌙 | Fansite – SG name | GOMs 🇺🇸 |
 |:---:|---|---|
-| OT12 | ~[**DUSTGLASS** – Moonlight Shadow](https://twitter.com/DUSTGLASS/status/1173131956634058752)~ | _cancelled_ |
+| OT12 | ~~[**DUSTGLASS** – Moonlight Shadow](https://twitter.com/DUSTGLASS/status/1173131956634058752)~~ | _cancelled_ |
 | 🐰 | [**liptight1019** – TEENAGE DREAM](https://twitter.com/liptight1019/status/1171018623005016064) | [@TripleCosmosGOs](https://twitter.com/TripleCosmosGOs/status/1173169108315230208)<br>[@whycoaster](https://twitter.com/whycoaster/status/1172560946528759813) |
 | 👄 | [**kissmylips_kr** – sleepless.](https://twitter.com/kissmylips_kr/status/1172195731546890240) | |
 | 🐟 | [**trust_issues613** – blue blood.](https://twitter.com/trust_issues613/status/1173977651293278208) | [@StarTokkis](https://twitter.com/StarTokkis/status/1174107432886460417)<br>[@TripleCosmosGOs](https://twitter.com/TripleCosmosGOs/status/1174251980182757382) |
@@ -19,7 +19,7 @@ _Group Orders organized in the USA for 2019–2020 LOONA Season’s Greetings._
 <br>
 
 🔊 Follow [**@twelveorbits**, our USA GO tracker Twitter](https://twitter.com/twelveorbits)!<br>
-🗓 Last updated: 1 Sept
+🗓 Last updated: 18 Sept
 
 <br>
 
